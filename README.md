@@ -1,4 +1,4 @@
-
+![EPFC Studio Golden Eagle](epfc-logo.png)
 # 🦅 FAROOQUE | EPFC STUDIO
 
 **RARE • LIMITED • POWER**
